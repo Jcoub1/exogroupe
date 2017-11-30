@@ -1,5 +1,5 @@
 Ingredients:
-* 3 pommes
+* 4 pommes
 * 1 pate brisée
 * 2 oeufs
 * 25 cl de creme fraiche
